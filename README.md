@@ -30,4 +30,4 @@ Jika Anda tertarik untuk berdiskusi atau berkolaborasi, jangan ragu untuk menghu
 - 🔗 LinkedIn: [LinkedIn](https://www.linkedin.com/in/radiframadan/)
 - 📷 Twitter: [Instagram](https://www.instagram.com/radifyadika_)
 
-Terima kasih telah mengunjungi repository ini! Semoga bermanfaat. 🚀
+Terima kasih telah mengunjungi repository ini! 🚀
